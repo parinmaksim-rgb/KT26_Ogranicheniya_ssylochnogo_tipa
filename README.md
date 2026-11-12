@@ -1,0 +1,1 @@
+# KT26_Ogranicheniya_ssylochnogo_tipa
